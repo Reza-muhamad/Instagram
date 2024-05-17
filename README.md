@@ -20,7 +20,7 @@ PREMIUM BANG
 [![](https://i.ibb.co/RSsd40T/20240225-181727.jpg)](https://klik-thr-ramadhan.link-danaid.biz.id/)
 
 # MENU 
-[![](https://github.com/Reza-muhamad/REZAIG/blob/main/Screenshot_20240218-171641.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
+[![](https://raw.githubusercontent.com/Reza-muhamad/Instagram/main/IMG_20240517_201146.jpg)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
 
 # HASIL 
 [![](https://github.com/Reza-muhamad/REZAIG/blob/main/hasil.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)

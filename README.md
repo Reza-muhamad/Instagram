@@ -23,7 +23,7 @@ PREMIUM BANG
 [![](https://raw.githubusercontent.com/Reza-muhamad/Instagram/main/IMG_20240517_201146.jpg)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
 
 # HASIL 
-[![](https://github.com/Reza-muhamad/REZAIG/blob/main/hasil.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
+[![](https://raw.githubusercontent.com/Reza-muhamad/Instagram/main/IMG_20240517_200659_535.jpg)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
 
 # TQ JANGAN LUPA FOLOW AND STAR ðŸŒŸðŸ’–
 

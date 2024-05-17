@@ -1,5 +1,4 @@
 # Instagram
-# REZAIG
 PREMIUM BANG
 #### Instalasi Tools
 ``` bash
